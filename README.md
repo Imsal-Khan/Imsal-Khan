@@ -31,7 +31,8 @@ I am a student of UOS in CS & IT department.I am a skilled web-developer and pas
 ☑️Reach Me
 
 Address: Ghani Park , Street 04, Faisalabad Road Sargodha
-Email: imsalkhan264@gmail.com
+
+💬Email: imsalkhan264@gmail.com
 
 📙Educational Background
 
