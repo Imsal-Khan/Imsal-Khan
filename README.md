@@ -107,12 +107,12 @@ Good Planner
 
 Believe in good work
 
-🎍Interest
+🎍Interest:
 Reading books
 Playing pc games
 Helping others
 
-🏏Sports
+🏏Sports:
 Badminton
 Vollyball
  
